@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Mjichsann
 - 👀 I’m interested in Mobile Apps, Web, And more
 - 🌱 I’m currently learning Flutter, Swift, Kotlin
-- 📫 How to reach me ig: @mjichsann    whatsapp: +6281311048582
+- 📫 How to reach me ig: @mjichsann | whatsapp: +6281311048582 | Telegram: @mjichsann
